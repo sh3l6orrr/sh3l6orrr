@@ -1,3 +1,3 @@
 [Visit my personal website](https://jinnzhangg.link)
 
-👋, so nice to have you here!
+👋, nice to see you here. My name is Jin, and I love brainstorming.
